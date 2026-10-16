@@ -8,3 +8,5 @@ meee
 
 sera?
 
+ate agr já sei fazer os bagui td
+
